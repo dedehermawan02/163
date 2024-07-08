@@ -1,2 +1,1 @@
-# 163
-uas
+# https://idx.google.com/manajergudang-2368222
